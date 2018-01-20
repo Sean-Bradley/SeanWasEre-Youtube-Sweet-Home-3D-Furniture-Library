@@ -20,8 +20,11 @@ Roof Attic Balcomy Window - https://www.youtube.com/watch?v=ni_HdY3g208
 
 Velux Roof Window Tutorial - https://www.youtube.com/watch?v=Qb8q2-S5sXw
 
-Creating the Furniture Library that uses these models - https://www.youtube.com/watch?v=ovsQjD9Fwms
+Triangle Rooftop Glass Window - https://youtu.be/lO1vF0FCPyY
 
+Create a Corner Window Totorial - https://youtu.be/KJs9vZXB8Es
+
+The Creation of the this Furniture Library that invludes these models above - https://www.youtube.com/watch?v=ovsQjD9Fwms
 
 
 
